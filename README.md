@@ -1,2 +1,2 @@
-# wrekin-shotokan website for Wrekin Shotokan Karate Club, Trinity Dojo 
-# #trinity #shotokan #karate #dojo #Telford #Wrekin
+# wrekin-shotokan website for our Trinity Karate Dojo 
+# #trinity #shotokan #karate #dojo #Telford #Wrekin #HTA
